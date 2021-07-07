@@ -23,6 +23,6 @@
 Как и в предыдущих сезонах, ведущей проекта «ТАНЦЫ на ТНТ 3 сезон» стала Ляйсан Утяшева.
 Команда наставников колесит по стране, чтобы выбрать самых лучших танцоров и пригласить их на конкурс, побороться за почетный титул и денежный приз в 3 000 000 руб.</p>
 
-[![Смотреть видео](https://img.youtube.com/vi/E4DDc2DW3ac/maxresdefault.jpg)](https://www.youtube.com/watch?v=E4DDc2DW3ac)
+[![Смотреть видео](https://img.youtube.com/vi/DKZU_853NRY/maxresdefault.jpg)](https://www.youtube.com/watch?v=DKZU_853NRY)
 
 ДО встречи в следующем сезоне!
