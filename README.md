@@ -3,7 +3,7 @@
 Настоящая борьба начнется, когда команды будут сформированы, кто же в этот раз сможет довести своего ученика до победы?
 Самые талантливые ребята поборются за возможность попасть в команды наставников.</p>
 
-[![Watch the video](https://img.youtube.com/vi/xuvLssa-yac/maxresdefault.jpg)](https://www.youtube.com/watch?v=xuvLssa-yac)
+[![Смотреть видео](https://img.youtube.com/vi/xuvLssa-yac/maxresdefault.jpg)](https://www.youtube.com/watch?v=xuvLssa-yac)
 
 <p style="text-align: left;">Танцы возвращаются. В 3 сезон придут и те, кто не смог получить шанс показать себя поставленной профессионалами хореографии.
 В качестве наставников выступили Мигель и Егор Дружинин.
@@ -11,7 +11,7 @@
 Отборочные кастинги пройдут в Екатеринбурге, Калининграде, Красноярске, Казани, Ростове, Санкт-Петербурге и Москве.
 Танцевальное шоу «Танцы» 3 сезон ищет таланты по всей России!</p>
 
-[![Watch the video](https://img.youtube.com/vi/HZ6LmaBS4Cw/maxresdefault.jpg)](https://www.youtube.com/watch?v=HZ6LmaBS4Cw)
+[![Смотреть видео](https://img.youtube.com/vi/HZ6LmaBS4Cw/maxresdefault.jpg)](https://www.youtube.com/watch?v=HZ6LmaBS4Cw)
 
 <p style="text-align: left;">Битва сезонов» победу одержал Антон Пануфник.
 Интересные личности, яркие образы и новые номера ждут танцовщиков в этом сезоне.
@@ -23,4 +23,6 @@
 Как и в предыдущих сезонах, ведущей проекта «ТАНЦЫ на ТНТ 3 сезон» стала Ляйсан Утяшева.
 Команда наставников колесит по стране, чтобы выбрать самых лучших танцоров и пригласить их на конкурс, побороться за почетный титул и денежный приз в 3 000 000 руб.</p>
 
-[![Watch the video](https://img.youtube.com/vi/E4DDc2DW3ac/maxresdefault.jpg)](https://www.youtube.com/watch?v=E4DDc2DW3ac)
+[![Смотреть видео](https://img.youtube.com/vi/E4DDc2DW3ac/maxresdefault.jpg)](https://www.youtube.com/watch?v=E4DDc2DW3ac)
+
+ДО встречи в следующем сезоне!
