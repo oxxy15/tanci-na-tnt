@@ -23,4 +23,4 @@
 
 [![Смотреть видео](https://img.youtube.com/vi/DKZU_853NRY/maxresdefault.jpg)](https://www.youtube.com/watch?v=DKZU_853NRY)
 
-ДО встречи в следующем сезоне!
+<p style="text-align: left;">ДО встречи в следующем сезоне!</p>
